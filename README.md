@@ -1,4 +1,4 @@
-# Hi, I'm Alankrit Sajwan 👋
+# Hi, I'm Adish Jain 👋
 
 **B.Tech CSE (Artificial Intelligence & Machine Learning) | VIT, Bhopal | Batch 2025–2029**
 
